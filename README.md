@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @andrewcounter
 - 👀 I’m interested in Web3 & Crypto projects
 - 🌱 I’m currently working on building a more robust technical skillset
-- Here's my website: [andrewcounter.com]
+- 🧑🏻‍🦰 Here's my website: [andrewcounter.com]
